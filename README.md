@@ -5,6 +5,7 @@ Seja muito bem-vindo(a) ao nosso guia completo sobre o [Shuffle](https://shuffl
 ## **Códigos promocionais mais recentes da** **Shuffle** **em 2025**
 
 | **Produto** | **Código promocional** | **Oferta de bônus da Shuffle** |
+| ----------- | ----------------------- | ------------------------------ |
 | Bônus de boas-vindas da Shuffle | **HELLA** | Receba 100% de bônus de depósito de até $1.000 USD |
 | Bônus de depósito Shuffle | **CSGOCATALOG** | Receba suas recompensas em BTC |
 | Shuffle Power Up Bônus| **HELLANEW** | Ganhe um prêmio de US$ 250.000 |
